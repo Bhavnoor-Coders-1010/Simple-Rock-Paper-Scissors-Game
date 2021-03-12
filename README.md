@@ -17,4 +17,4 @@ Also, you can surf binge more to customize the game according to you!!
 
 Enjoy the game!!
 
-(Will be sharing youtube video link soon!!!)
+(Youtube Video Link: https://www.youtube.com/watch?v=dhgSEqbinoM&t=7s)
